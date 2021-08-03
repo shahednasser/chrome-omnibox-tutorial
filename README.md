@@ -1,0 +1,1 @@
+<a href="https://iconscout.com/icons/color" target="_blank">Color Icon</a> by <a href="https://iconscout.com/contributors/thalita-torres">Thalita Torres</a> on <a href="https://iconscout.com">Iconscout</a>
